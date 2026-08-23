@@ -4,6 +4,7 @@
 Helping businesses improve visibility across Google Search and AI-powered search platforms.
 
 **SEO • AI Search Optimization • GEO • AEO • Technical SEO • Local SEO**
+
 🌐 Website:  
 https://ratufayelahmed.com
 
@@ -126,16 +127,22 @@ The future of SEO belongs to businesses that create genuine value and become tru
 # Connect With Me
 🌐 Website:  
 https://ratufayelahmed.com
+
 🔗 About Me Profile:  
 https://about.me/ratufayelahmed
+
 💼 LinkedIn:  
 https://www.linkedin.com/in/ratufayelahmed
+
 ✍️ Medium:  
 https://medium.com/@ratufayelfs
+
 📸 Instagram:  
 https://www.instagram.com/ratufayelahmed/
+
 📘 Facebook:  
 https://www.facebook.com/ratufayelahmed.seospecialist
+
 📌 Pinterest:  
 https://www.pinterest.com/ratufayelahmed/
 
