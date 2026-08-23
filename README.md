@@ -147,7 +147,9 @@ https://www.facebook.com/ratufayelahmed.seospecialist
 https://www.pinterest.com/ratufayelahmed/
 
 # Professional Summary
+
 **Name:** R A Tufayel Ahmed
+
 **Role:** AI-Focused SEO Specialist
 
 **Primary Focus:**
